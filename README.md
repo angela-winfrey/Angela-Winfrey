@@ -1,1 +1,1 @@
-Hi, I'm Angela Winfrey. I'm a student learning Bachelor of Business Information Technology at Strathmore University. I'm interested in Aerospace engineering and IT systems. Currently learning CompTIA, networking basics and coding. 
+Hi, I'm Angela Winfrey. I'm a student learning Bachelor of Business Information Technology at Strathmore University. I'm interested in Aerospace engineering and IT systems. Currently learning, networking basics and coding. 
